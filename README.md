@@ -3,7 +3,7 @@ Hier werden die aktuellen Dokumente für die Arbeit in der AG Ehrenamt, die vom 
 Bei Fragen, Verbesserungsvorschlägen und Anmerkungen können Sie mich unter soenbeier@uni-potsdam.de erreichen. 
 
 
-Mir ist es besonders wichtig, dass ein System geschaffen wird, wonach alle Studierenden, die in akademischen und studentischen Gremien aktiv sind, Leistungspunkte für ihre Arbeit erhalten können. Dazu sollen die Studierenden in "Arbeitstagebüchern" festhalte, wann sie wie lange für das Gremium aktiv waren. Am Schluss erhalten die Studierenden dann für z.B. 180 Stunden arbeit 6 Leistungspunkte (1LP = 30 Stunden Arbeit). 
+Mir ist es besonders wichtig, dass ein System geschaffen wird, wonach alle Studierenden, die in akademischen und studentischen Gremien aktiv sind, Leistungspunkte für ihre Arbeit erhalten können. Dazu sollen die Studierenden in "Arbeitstagebüchern" festhalte, wann sie wie lange für das Gremium aktiv waren. Am Schluss erhalten die Studierenden dann für z.B. 180 Stunden Arbeit 6 Leistungspunkte (1LP = 30 Stunden Arbeit). 
 Argumente für ein solches Anrechnungssystem sind:
 - Studierenden, die bisher keine Zeit hatten sich neben dem Studium zu engagieren, haben nun die Möglichkeit dazu, da die Gremienarbeit nun auch angerechnet werden kann.
 - Ehrenamtliche Arbeit erhält mehr Anerkennung und ist so auch präsenter an der Uni. Dies kann dazu führen, dass Studierende, die davor nicht in Kontakt mit Gremienarbeit gekommen sind nun darauf aufmerksam werden und möglicherweise auch aktiv werden.
